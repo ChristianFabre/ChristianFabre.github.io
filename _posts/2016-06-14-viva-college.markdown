@@ -16,4 +16,4 @@ However, there are basic dressing guidelines to consider while building a wardro
   
 Men’s line of clothes for college must include denim Jeans, t-shirts, trousers and button-down with tie (for special occasions). Other basics like jackets, sweaters, gym wear, pyjamas, bathrobe and a swimsuit will be required regularly. Loafers, boat shoes, sneakers are choices depending on the weather. Flip- flops are a constant favourite.
 
-College is a celebration of people from across cultures. College is so you! Go ahead and achieve academic credentials while bonding to make great lifetime friends. ☺ ☺ ☺ 
+College is a celebration of people from across cultures. College is so you! Go ahead and achieve academic credentials while bonding to make great lifetime friends. ☺ ☺ ☺
